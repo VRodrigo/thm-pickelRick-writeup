@@ -1,0 +1,1 @@
+# thm-pickelRick-writeup
